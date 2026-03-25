@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **menongbemerrick@gmail.com**
 
-- 📫 Or you can contact directly via: [+229 62384867](+229 62384867)
+- 📫 Or you can contact directly via(WhatsApp): [+229 0162384867](+229 0162384867)
 
 - ⚡ Fun fact **I love karate and soccer**
 
